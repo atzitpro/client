@@ -1,2 +1,2 @@
 # test
-kkGenesis a2z20 A2z 2019-05-02T08:00:00  kkRevelation
+kkGenesis N3u/0Uxo4Kbv7+4+dOGMgSFKSmve0y5oI2YWf+T9ibRWKcpvTDpHcUqu0Ps6xyjWWHwbN2YJbgvog2BlUgLaNg==  kkRevelation
