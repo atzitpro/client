@@ -1,2 +1,1 @@
 # test
-kkGenesis   qJUTI7BSzLlQ3ko+kiulGPrP8EciFM4as+ZEE2rFdqwGmv+B/oxCtBFxLFDcS1iC1qkX+160P58JjudUTfGHQ79XFYyy/iL/LGgOraIkc/IMmAddxa/VtxmvVTS/2m18MaQY36CHdpGcTi/QfHYRifwr1Q+byi6OiuQ8nRonV0yQ6I3wdLl1vmiNxVupoXcS9OL5xw3jlDEvmNWvYJQq2QnG5ynxszhd6zTvBhbseUvtzhdCbyX3vNz37uM+YX3d  kkRevelation
